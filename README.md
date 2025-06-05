@@ -71,7 +71,7 @@ I'm a passionate Computer Engineering student with a strong interest in:
 ### 📫 Contact Me
 
 - 📧 Email: [oussamahassania87@gmail.com](mailto:oussamahassania87@gmail.com)  
-- 🔗 LinkedIn: [Oussama Hassania](https://www.linkedin.com/in/oussama-hassania)
+- 🔗 LinkedIn: [Oussama Hassania](https://www.linkedin.com/in/oussama-hassania-425b582b1/)
 
 ---
 
